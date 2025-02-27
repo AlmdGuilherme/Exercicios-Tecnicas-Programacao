@@ -1,1 +1,0 @@
-# Exercicios-Tecnicas-Programacao
